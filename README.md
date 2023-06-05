@@ -10,7 +10,7 @@ to discuss what you would like to change.
 
 For all who wants to collaborate my contact me Via Email and we can discuss your intention and solve differences, if there is any, to make our self-improvement journey a success. Thank you.
 
-- [Emmanuel Sunga](emmanuelsunga325@gmail.com)
+- emmanuelsunga325@gmail.com
 
 
 ## Authors
