@@ -9,3 +9,8 @@ Pull requests are welcome. For major changes, please open an issue first
 to discuss what you would like to change.
 
 For all who wants to collaborate my contact me Via Email and we can discuss your intention and solve differences, if there is any, to make our self-improvement journey a success. Thank you.
+
+
+## Authors
+
+- [Saichre](https://github.com/saichre)
